@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-- Heya
 - Enjoys a variety of games
 - 🤡 Although I'm terrible on all of them
 
