@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+- Heya
+- Enjoys a variety of games
+- 🤡 Although I'm terrible on all of them
+
 <!--
 **koitishirozaki/koitishirozaki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
